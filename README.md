@@ -1,3 +1,3 @@
-![](https://files.catbox.moe/k8khq8)
+![](https://files.catbox.moe/fe9372.png)
 
 how do I make my readme lmao💔
