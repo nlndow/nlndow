@@ -1,3 +1,3 @@
-![](https://pin.it/3sOyIo3G7)
+![](https://pin.it/3unjIvPWr)
 
 how do I make my readme lmao💔
