@@ -1,1 +1,1 @@
-files.catbox.moe/fe9372.png
+https://files.catbox.moe/fe9372.png
