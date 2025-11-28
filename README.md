@@ -1,3 +1,1 @@
-how do I make my readme,,
-
-I suck at science computering </3
+https://files.catbox.moe/fe9372.png
