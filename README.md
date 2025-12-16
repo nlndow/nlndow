@@ -11,4 +11,4 @@ how do I make my readme lmao💔 (im bad at science computering trust)
 • an attention seeker, i will easily get jealous sometimes when my oomfs hangout with someone else (especially ***some*** of my ***close friends*** and my ***partner***/***soulmate***)
 
 
-this is still on wip. i lowkey suck
+**this is still on wip. i lowkey suck**
