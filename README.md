@@ -13,4 +13,4 @@ how do I make my readme lmao💔 (im bad at science computering trust)
 
 **!!!this is still on wip. i lowkey suck!!!**
 
-★ check out my hubbys strawpage he's kewl (⁠｡⁠･⁠ω⁠･⁠｡⁠)☞ https://darkvalkyrie.straw.page/
+★ check out my hubbys strawpage its kewl (⁠｡⁠･⁠ω⁠･⁠｡⁠)☞ https://darkvalkyrie.straw.page/
