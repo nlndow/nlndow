@@ -8,4 +8,4 @@ how do I make my readme lmao💔 (im bad at science computering trust)
 
 • if ur one of my oomfs, i might be silly/act childish sometimes so bear with me. (trying not to be awkward and all that)
 
-• an attention seeker, i will easily get jealous sometimes when my oomfs hangout with someone else (especially some of my close friends and my partner/soulmate)
+• an attention seeker, i will easily get jealous sometimes when my oomfs hangout with someone else (especially *some* of my *close friends* and my *partner*/*soulmate*)
