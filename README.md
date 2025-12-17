@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/fe9372.png)
+![](https://files.catbox.moe/d3scd2.jpg)
 
 how do I make my readme lmao💔 (im bad at science computering trust)
 
