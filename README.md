@@ -4,3 +4,5 @@
 **rblx acc if you guys wanna add/play w me as im mostly inactive on pt:** https://www.roblox.com/users/9835595255/profile?friendshipSourceType=PlayerSearch ***(TWINS/OOMFIES ADD MY MAIN ACC INSTEAD)***
 
 AND NO I AM NOT QUITTING PT IT'S JUST THE GAME IS BORING AND IM TOO LAZY TO FINISH MY PT SKINS OK?? IT TAKES HOURS AND EVEN DAYS TO FINISH IT pls force me to finish them pls...
+
+second strawpage and prns page are still in the reworks.
