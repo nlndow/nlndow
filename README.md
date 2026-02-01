@@ -7,3 +7,5 @@
 AND NO I AM NOT QUITTING PT IT'S JUST THE GAME IS BORING AND IM TOO LAZY TO FINISH MY PT SKINS OK?? IT TAKES HOURS AND EVEN DAYS TO FINISH IT pls force me to finish them pls...
 
 second strawpage (c00per_2723) is still in the reworks. readme is still on wip, still learning how to do computer science stuff
+
+![](https://files.catbox.moe/ic3hr9.jpg)
