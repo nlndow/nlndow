@@ -7,5 +7,5 @@
 ![](https://media1.tenor.com/m/EtmDluU-B-IAAAAd/blinkie-blinkies.gif)
 ![](https://media1.tenor.com/m/roSOfAzgtBUAAAAd/blinkies.gif) ![](https://media1.tenor.com/m/_q17T1MBLqkAAAAd/love-green.gif) ![](https://media1.tenor.com/m/p3aJpWqSiaQAAAAd/blinkie-blinkies.gif)
 
-my readme is so fucking ugly ik. im still trying to learn on how to do computer science shit
+my readme is so fucking ugly ik (its preferred to view it on mobile) im still trying to learn on how to do computer science shit
 ![](https://media1.tenor.com/m/mA3d4Fe8f_gAAAAd/emoticon-emote.gif)
