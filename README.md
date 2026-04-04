@@ -5,4 +5,3 @@
 ![Views](https://komarev.com/ghpvc/?username=nlndow&color=DA984C&style=plastic&label=CUSTOMERS)
       
 ![](https://media1.tenor.com/m/-0-Ka19I59YAAAAd/blinkie-blinkies.gif) ![](https://media1.tenor.com/m/oskUIXmWppsAAAAd/angel-pink.gif) ![](https://media1.tenor.com/m/-sz5T5c9FBMAAAAd/spacehey-blinkie.gif) ![](https://media1.tenor.com/m/p3aJpWqSiaQAAAAd/blinkie-blinkies.gif) ![](https://media1.tenor.com/m/h3vrRwNWqmkAAAAd/blinkie-spacehey.gif) ![](https://media1.tenor.com/m/_q17T1MBLqkAAAAd/love-green.gif) ![](https://media1.tenor.com/m/Ob_AceAz_1gAAAAd/my-chemical-romance-blinkie.gif) ![](https://media1.tenor.com/m/0osFciPj4skAAAAd/blinkie-my-chemical-romance.gif)
-![](https://media1.tenor.com/m/ih288IXWcq0AAAAd/mau-makan-apa-general-aditya.gif)
