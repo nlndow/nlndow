@@ -1,5 +1,5 @@
 ![](https://media1.tenor.com/m/roSOfAzgtBUAAAAd/blinkies.gif) ![](https://media1.tenor.com/m/abKr8C_4hRAAAAAd/blinkie.gif)
-![](https://files.catbox.moe/v8rjau.jpg)
+![](https://files.catbox.moe/2e8vb9.jpg)
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31k2yplnqxriltbjs42hxnz5ja2y&cover_image=true&theme=novatorem&show_offline=true&background_color=5fad47&interchange=true&profanity=false&bar_color=5fad47&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31k2yplnqxriltbjs42hxnz5ja2y&redirect=true)
 
 ![Views](https://komarev.com/ghpvc/?username=nlndow&color=48782C&style=plastic&label=objectified)
