@@ -7,4 +7,3 @@
 ![](https://media1.tenor.com/m/ih288IXWcq0AAAAd/mau-makan-apa-general-aditya.gif) ![](https://media1.tenor.com/m/suxIWMu0u7kAAAAd/mau-makan-apa-fighting.gif) ![](https://media1.tenor.com/m/oZzne2PnEmEAAAAd/maumakanapa-gix.gif)
 
 ![](https://litter.catbox.moe/jtvqi2fetz9ry2s6.jpg)
-we pony :00
