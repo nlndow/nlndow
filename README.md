@@ -6,7 +6,7 @@
 
 ![](https://files.catbox.moe/kqqas9.webp)
 
-<sub>[𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://j74.straw.page)󠀠󠀠󠀠ㅤㅤㅤㅤㅤ[𝘗𝘳𝘰𝘯𝘰𝘶𝘯𝘴](https://en.pronouns.page/@_PR-050)ㅤㅤㅤㅤㅤ[𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://titansepekanman.atabook.org/)
+<sub>[𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://j74.straw.page)󠀠󠀠󠀠ㅤㅤㅤㅤㅤ[𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔](https://en.pronouns.page/@_PR-050)ㅤㅤㅤㅤㅤ[𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://titansepekanman.atabook.org/)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31k2yplnqxriltbjs42hxnz5ja2y&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=B4D2E4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
