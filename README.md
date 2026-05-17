@@ -4,7 +4,8 @@
 
 ![Views](https://komarev.com/ghpvc/?username=nlndow&color=B4D2E4&style=plastic&label=woerkers)
 
-![](https://files.catbox.moe/kqqas9.webp)
+<img width="740" height="640" alt="Image" src="https://files.catbox.moe/kqqas9.webp)
+" />![](https://files.catbox.moe/kqqas9.webp)
 
 <sub>[𝘚𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://7j4.straw.page)󠀠󠀠󠀠ㅤㅤㅤㅤㅤ[𝘗𝘳𝘰𝘯𝘰𝘶𝘯𝘴](https://en.pronouns.page/@_PR-050)ㅤㅤㅤㅤㅤ[𝘈𝘵𝘢𝘣𝘰𝘰𝘬](https://titansepekanman.atabook.org/)
 
