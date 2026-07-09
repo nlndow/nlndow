@@ -4,7 +4,7 @@
 
 ![Views](https://komarev.com/ghpvc/?username=nlndow&color=B4D2E4&style=plastic&label=woerkers)
 
-![](https://files.catbox.moe/kqqas9.webp)
+![](https://files.catbox.moe/wbtjni.png)
 
 <sub>[𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://cyndatyphlosion.straw.page/)󠀠󠀠󠀠ㅤㅤㅤㅤㅤ[𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔](https://pronouns.cc/@isolationPsd)ㅤㅤㅤㅤㅤ[𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://titansepekanman.atabook.org/)
 
