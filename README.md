@@ -2,7 +2,7 @@
 
 <div align="center">
 
-![Views](https://komarev.com/ghpvc/?username=nlndow&color=B4D2E4&style=plastic&label=music notes ♪)
+![Views](https://komarev.com/ghpvc/?username=nlndow&color=B4D2E4&style=plastic&label=musicnotes ♪)
 
 ![](https://files.catbox.moe/wbtjni.png)
 
